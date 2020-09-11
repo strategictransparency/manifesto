@@ -21,8 +21,8 @@ an over-reliance on individual models of success
 production, production, more production...to what ends?  
 the question of separating the creative from that which is considered not creative
 binaries  
-the idea of knowledge production; authorship; who produces content; and particularly role of art and design as a means of reproducing capitalist structures.  
-how to support ourselves financially as we fo this work
+the idea of knowledge production; authorship; who produces content; and particularly role of art and design as a means of reproducing capitalist structures.   
+how to support ourselves financially as we fo this work  
 capitalism's ability to insert itself into everything  
 our inability to invent possible futures
 
