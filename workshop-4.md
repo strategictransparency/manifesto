@@ -37,7 +37,7 @@ cultural work
 
 
 # We are concerned by...
-"The fracturedness through which artists make money."
+"The fracturedness through which artists make money."  
 Addictive mobile technologies  
 Surveillance and Tracking  
 Ownership and Capitalization of Ideas  

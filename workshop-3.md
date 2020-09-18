@@ -19,7 +19,7 @@ a commitment
 disrupting systems  
 thinking about reality differently  
 ongoing investigations  
-Eyes are wide open examining and not fearing the consequences of what will emerge out of digging deeper.
+Eyes are wide open examining and not fearing the consequences of what will emerge out of digging deeper.  
 reluctance to accept the norms.  
 action  
 asking hard questions  
@@ -36,7 +36,7 @@ instant gratification and patches rather than structural repair (but we also see
 racism and blatant discrimination in tech  
 censorship  
 
-#We refuse...
+# We refuse...
 to make weapons that will aid in our continued oppression  
 to harm, oppress or discriminate against others (or contribute to work that does)  
 to work with people who only want our skills and not our voices  
